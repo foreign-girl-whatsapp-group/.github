@@ -71,4 +71,4 @@ Yes, but avoid sharing personal information with strangers.
 
 ## Conclusion  
 
-Joining foreign girl WhatsApp groups is a great way to connect with people worldwide. Click on the links above and start making new friends today!
+Joining foreign girls WhatsApp groups is a great way to connect with people worldwide. Click on the links above and start making new friends today!
